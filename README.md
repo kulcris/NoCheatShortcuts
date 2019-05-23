@@ -1,0 +1,2 @@
+# NoCheatShortcuts
+Stardew Valley Mods
